@@ -1,0 +1,1 @@
+The first thing that comes to mind is the Knight Rider theme, I think mainly because of the intro line..."Knight Rider, a shadowy look into the dangerous world of a man... who does not exist" it gives me chills to this day.
