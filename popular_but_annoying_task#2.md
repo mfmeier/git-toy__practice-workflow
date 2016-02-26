@@ -1,1 +1,0 @@
-Selfies, and the rapid taking of them, is beyond annoying to me.
