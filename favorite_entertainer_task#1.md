@@ -1,1 +1,1 @@
-Randy Newman, the composer is probobly my favoirite entertainer.
+Randy Newman, the composer is probobly my favoirite entertainer.  This beautifl man was born on November 28, 1943.
