@@ -1,0 +1,1 @@
+I have always really been a fan of "God Speed" as a formal goodbye.  I would love to add this to my lexicon as a viable response when some one says goodbye to me.
